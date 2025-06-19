@@ -1,1 +1,1 @@
-# proyecto_del_PET_402_grupo_6
+# proyecto-del-PET-402-grupo-6
